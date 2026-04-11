@@ -5,7 +5,7 @@
 
  always feel free to int, even if im sititng w someone!!! idm who interacts 4 the most part ,,, justdont be stupid ok.. whispering is the best way to get my attention!!! c+h is ok but i might not reciprocatesometimes..ok..
 
- i block freely,, its usually nnot personal,, i'd rather go on n have fun than deal w people that i might not like..sorryok  (ᵕ _ᴗ_)
+ i block freely,, its usually nnot personal,, i'd rather go on n have fun than deal w people that i might not like..sorryok  (ᵕ _ ᴗ_)
  
 hihialsofair warning i usuually only accept requests/followback friends,, so if i ignored a request it isnt becausei hate u!!!just liketalk to me more !!! ^o^
 alsoalasooo do not drag me into unnecessary drama pleas i do nawttt care
