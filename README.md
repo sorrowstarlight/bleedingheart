@@ -11,6 +11,6 @@ hihialsofair warning i usuually only accept requests/followback friends,, so if 
 alsoalasooo do not drag me into unnecessary drama pleas i do nawttt care
   
   sign my <a href=https://sorrowstarlight.atabook.org/>atabook</a>. lalala </p>
-my linktree is on my links thing if you wanna reach me anywhere ! im mostly active on <a href=https://guns.lol/starryreach/>discord</a> （*＾-＾*) guns.lol/starryreach
+my linktree is on my links thing if you wanna reach me anywhere ! im mostly active on <a href=https://guns.lol/starryreach/>discord</a> （*＾-＾*) 
 
 <img src="https://i.postimg.cc/P5GGdWcr/tumblr-5542d42e1215d6c78b10a0d72607beb3-a4c0fc50-400.gif" width="60%"></p>
